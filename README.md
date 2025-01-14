@@ -2,4 +2,4 @@
 - 👀 I’m interested in artifical intelligence
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on ai project throughout my whole life
-- 📫 How to reach me muhammadsarosh2002@gmail.com
+- 📫 How to reach me muhammadsarosh.ai@gmail.com
